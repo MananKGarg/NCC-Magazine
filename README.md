@@ -1,1 +1,1 @@
-# NCC-Magazine
+# NCC Magazine
