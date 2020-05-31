@@ -7,6 +7,7 @@
 
 ## Drive Links
 
+* [NCC Magazine](https://drive.google.com/drive/u/2/my-drive)
 * [RD Photos](https://drive.google.com/folderview?id=1KaJxKWGwbkAEigC6qkv99KuAMfJsZD-S)
 * [ATC Photos](https://drive.google.com/drive/folders/1d-c_kyn3V6_NVxoGnEuXJLZXAeQavNvg)
 * [Kalsubai Photos](https://drive.google.com/drive/u/0/folders/1-5t0X-4Z6OJhfo4fycXrzrFanN9QJmOl)
