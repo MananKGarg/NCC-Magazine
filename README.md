@@ -16,4 +16,7 @@
 
 ## Finished Stuff
 
+### Timeline
+
+* [15 July - NCC Foundation Day](https://drive.google.com/drive/u/2/folders/1G1XmlMMgI1XUce5o1BgzHiWmK-peU5nX)
 
