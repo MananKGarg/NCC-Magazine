@@ -1,0 +1,3 @@
+# 15 July - NCC foundation Day
+
+On 𝟏𝟓 𝐉𝐮𝐥𝐲 𝟏𝟗𝟒𝟖, over the recommendation by a committee headed by HN Kunzru, came into existence the 𝐍𝐚𝐭𝐢𝐨𝐧𝐚𝐥 𝐂𝐚𝐝𝐞𝐭 𝐂𝐨𝐫𝐩𝐬; An organisation that served as the second line of defense in major wars that followed, an organisation that strived towards spreading awareness and training the youngsters of the country, an organisation which is now the 𝐖𝐨𝐫𝐥𝐝’𝐬 𝐋𝐚𝐫𝐠𝐞𝐬𝐭 𝐔𝐧𝐢𝐟𝐨𝐫𝐦𝐞𝐝 𝐘𝐨𝐮𝐭𝐡 𝐈𝐧𝐬𝐭𝐢𝐭𝐮𝐭𝐢𝐨𝐧. Today, 𝟐 𝐌𝐀𝐇 𝐄𝐍𝐆𝐑 𝐑𝐄𝐆𝐓 celebrates the 𝟕𝟏𝐬𝐭 𝐟𝐨𝐮𝐧𝐝𝐚𝐭𝐢𝐨𝐧 𝐝𝐚𝐲 of the National Cadet Corps and looks forward to grow more, serve the nation and uphold the glory the organisation has achieved!! 
