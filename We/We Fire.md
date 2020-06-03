@@ -1,3 +1,3 @@
-# We Fire
+# <p align = 'center'>We Fire</p>
 
 Using firearms(for non harming {**good word**} purposes obvoiusly!) is a thrilling luxury that isn't quite affordable for any general college student, but for NCC cadets, it's just one of the many perks of being a part of the organisation. During the Annual Training Camp, all the cadets are trained by armymen in properly holding{**good word**} and firing rounds from a 0.22 mm Sporting Rifle. After initial briefing, every year the cadets are taken to the Pokhran firing range where most of them, for the very first time in their lives get to experience the sheer thrill of physically feeling the vibrations of a rifle's recoil. Cadets are allowed to fire several rounds on a target at a distance of 25m under proper supervision of designated Army Officers. 
