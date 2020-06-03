@@ -68,6 +68,7 @@
 * [15 Jan - Makar Sakranti Celebration, Gymkhana Grounds](https://github.com/MananKGarg/NCC-Magazine/blob/master/Timeline/Makar%20sakranti.pdf)
 * [20 Jan - RD Countdown starts](https://github.com/MananKGarg/NCC-Magazine/blob/master/Timeline/Pre%20RD%201.pdf)
 * [26 Jan - Republic Day](https://github.com/MananKGarg/NCC-Magazine/blob/master/Timeline/Post%20RD%20post.pdf)
+* [RD Wall Painting]
 * 14 Feb - Sports GC officially announced
 * 15 Feb - Start of Sports GC - Football + Badminton
 * [20 Feb - Announcement of Trip 2 ( Palshet Beach and Raigad Fort )](https://github.com/MananKGarg/NCC-Magazine/blob/master/Timeline/Trip%202%20Announcement.pdf)
