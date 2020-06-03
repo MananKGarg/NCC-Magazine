@@ -58,17 +58,17 @@
 
 ## Sem 2
 
-* 4 Jan - Guard of Honur to Air Chief Marshall BS Dhanoa
+* [4 Jan - Guard of Honur to Air Chief Marshall BS Dhanoa](https://github.com/MananKGarg/NCC-Magazine/blob/master/Timeline/GoH%20to%20Air%20Chief.pdf)
 * 11 Jan - 1st Session on NCC Grounds - Prep for RD Parade
 * 12 Jan - RD Parade Drills Session
 * 13 Jan - Announcement of Cult GC result
 * 13 Jan - Drills Session
-* 13 Jan - Lohri Celebration
+* [13 Jan - Lohri Celebration](https://github.com/MananKGarg/NCC-Magazine/blob/master/Timeline/Lohri.pdf)
 * 14 Jan - Drill Session
-* 15 Jan - Makar Sakranti Celebration, Gymkhana Grounds
-* 20 Jan - RD Countdown starts
-* 26 Jan - Republic Day
+* [15 Jan - Makar Sakranti Celebration, Gymkhana Grounds](https://github.com/MananKGarg/NCC-Magazine/blob/master/Timeline/Makar%20sakranti.pdf)
+* [20 Jan - RD Countdown starts](https://github.com/MananKGarg/NCC-Magazine/blob/master/Timeline/Pre%20RD%201.pdf)
+* [26 Jan - Republic Day](https://github.com/MananKGarg/NCC-Magazine/blob/master/Timeline/Post%20RD%20post.pdf)
 * 14 Feb - Sports GC officially announced
 * 15 Feb - Start of Sports GC - Football + Badminton
-* 20 Feb - Announcement of Trip 2 ( Palshet Beach and Raigad Fort )
+* [20 Feb - Announcement of Trip 2 ( Palshet Beach and Raigad Fort )](https://github.com/MananKGarg/NCC-Magazine/blob/master/Timeline/Trip%202%20Announcement.pdf)
 * 8 Mar - Holi Celebration and DJ Night.
