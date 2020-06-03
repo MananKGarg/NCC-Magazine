@@ -25,5 +25,5 @@ If you face any difficulty or you are doubtful about sending something, feel fre
 
 We eagerly await your response.
 
-Rishika Rai - Media Secy 2020-21
-Shruti Datir -  Media Secy 2020-21
+**Rishika Rai - Media Secy 2020-21**<br>
+**Shruti Datir -  Media Secy 2020-21**
