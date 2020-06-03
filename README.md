@@ -18,7 +18,7 @@
 
 ### Timeline
 
-* [Council Trip](https://drive.google.com/drive/u/2/folders/1pIeoA9xQJHdW5PYxakJyIc2XmxqzO_BM)
+
 
 
 ### We
