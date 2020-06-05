@@ -14,7 +14,17 @@
 * [Council Photoshoot](https://drive.google.com/drive/folders/1Ikb1cSHMMtJisoOh8cIAg3HIg6wLmX7y)
 * [NCC Events Coverage](https://drive.google.com/drive/u/0/folders/16j3Ys0guUeQ7gtx0I310-pOndlOcS57C)
 
+## Ongoing tasks
+
+* [We Fire](https://github.com/MananKGarg/NCC-Magazine/blob/master/We/We%20Fire.md)
+* [We Perform](https://github.com/MananKGarg/NCC-Magazine/blob/master/We/We%20Perform.md)
+* [We Play](https://github.com/MananKGarg/NCC-Magazine/blob/master/We/We%20Play.md)
+* [We March](https://github.com/MananKGarg/NCC-Magazine/blob/master/We/We%20March.md)
+* [ATC Begins]
+
+
 ## Finished Stuff
+
 
 ### Timeline
 
