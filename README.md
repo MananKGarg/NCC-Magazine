@@ -21,6 +21,7 @@
 * [We Perform](https://github.com/MananKGarg/NCC-Magazine/blob/master/We/We%20Perform.md)
 * [We Play](https://github.com/MananKGarg/NCC-Magazine/blob/master/We/We%20Play.md)
 * [We March](https://github.com/MananKGarg/NCC-Magazine/blob/master/We/We%20March.md)
+* [We Tour](https://github.com/MananKGarg/NCC-Magazine/blob/master/We/We%20Tour.md)
 
 ### Timeline
 * [ATC Begins]
