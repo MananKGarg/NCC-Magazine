@@ -1,5 +1,5 @@
 # <p align = 'center'>We Fire</p>
-### <p align = 'center'>"One man with a gun can control 100 without one. ~ Vladimir Lenin"</p>
+### <p align = 'center'>*"One man with a gun can control 100 without one. ~ Vladimir Lenin"* </p>
 
 
 # MANAN
