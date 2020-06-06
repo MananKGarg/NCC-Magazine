@@ -16,11 +16,18 @@
 
 ## Ongoing tasks
 
+### WE
 * [We Fire](https://github.com/MananKGarg/NCC-Magazine/blob/master/We/We%20Fire.md)
 * [We Perform](https://github.com/MananKGarg/NCC-Magazine/blob/master/We/We%20Perform.md)
 * [We Play](https://github.com/MananKGarg/NCC-Magazine/blob/master/We/We%20Play.md)
 * [We March](https://github.com/MananKGarg/NCC-Magazine/blob/master/We/We%20March.md)
+
+### Timeline
 * [ATC Begins]
+
+### Council
+
+* 
 
 
 ## Finished Stuff
