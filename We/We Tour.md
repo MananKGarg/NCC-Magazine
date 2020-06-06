@@ -1,5 +1,5 @@
 # <p align = 'center'> We Tour </p>
-<p align = 'center'> "Because the greatest part of the journey isn't arriving at you destination, it's the wild stuff in between"
+### <p align = 'center'> *"Because the greatest part of the journey isn't arriving at you destination, it's the wild stuff in between"* </p>
 
 
 ## MANAN 1
