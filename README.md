@@ -8,8 +8,8 @@
 ## Drive Links
 
 * [NCC Magazine](https://drive.google.com/drive/u/2/my-drive)
-> * *Gmail - nccmagazine2020@gmail.com* <br>
-> * *Password - NCCMagazine@2020*
+  * *Gmail - nccmagazine2020@gmail.com* <br>
+  * *Password - NCCMagazine@2020*
 * [RD Photos](https://drive.google.com/folderview?id=1KaJxKWGwbkAEigC6qkv99KuAMfJsZD-S)
 * [ATC Photos Day 2 - Day 5](https://drive.google.com/drive/u/4/my-drive)
 > * *Gmail - atcncc22019@gmail.com* <br>
