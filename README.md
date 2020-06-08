@@ -12,11 +12,11 @@
   * *Password - NCCMagazine@2020*
 * [RD Photos](https://drive.google.com/folderview?id=1KaJxKWGwbkAEigC6qkv99KuAMfJsZD-S)
 * [ATC Photos Day 2 - Day 5](https://drive.google.com/drive/u/4/my-drive)
-> * *Gmail - atcncc22019@gmail.com* <br>
-> * *Password - ATCncc@2019*
+  * *Gmail - atcncc22019@gmail.com* <br>
+  * *Password - ATCncc@2019*
 * [ATC Photos Day 6 - Day 9](https://drive.google.com/drive/u/3/my-drive)
-> * *Gmail - atcncc2019@gmail.com* <br>
-> * *Password - ATCncc@2019*
+  * *Gmail - atcncc2019@gmail.com* <br>
+  * *Password - ATCncc@2019*
 * [Kalsubai Photos](https://drive.google.com/drive/u/0/folders/1-5t0X-4Z6OJhfo4fycXrzrFanN9QJmOl)
 * [Council Photoshoot](https://drive.google.com/drive/folders/1Ikb1cSHMMtJisoOh8cIAg3HIg6wLmX7y)
 * [NCC Events Coverage](https://drive.google.com/drive/u/0/folders/16j3Ys0guUeQ7gtx0I310-pOndlOcS57C)
