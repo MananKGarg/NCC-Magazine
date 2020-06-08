@@ -26,7 +26,7 @@
 ### WE
 
 * [We Perform](https://github.com/MananKGarg/NCC-Magazine/blob/master/We/We%20Perform.md)
-  * > Text Finalised, photos to be selected
+  * Text Finalised, photos to be selected
 * [We Play](https://github.com/MananKGarg/NCC-Magazine/blob/master/We/We%20Play.md)
 * [We March](https://github.com/MananKGarg/NCC-Magazine/blob/master/We/We%20March.md)
 * [We Tour](https://github.com/MananKGarg/NCC-Magazine/blob/master/We/We%20Tour.md)
