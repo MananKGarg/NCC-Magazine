@@ -1,7 +1,7 @@
-#We celebrate :
-" The more you praise and celebrate your life, the more there
-is in life to celebrate."
-                            - Oprah Winfrey
+# <p align = 'center' > We celebrate </p>
+## <p align = 'center'> " The more you praise and celebrate your life, the more there 
+is in life to celebrate.  - Oprah Winfrey </p>
+                           
 We always try to cherish and celebrate all the possible moments
 so asto maintain a happy environment in the organization.
 Festivals like Dusshehura, Diwali, Lohri, Makarsankranti, Holi and
