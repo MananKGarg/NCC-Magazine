@@ -25,8 +25,6 @@
 
 ### WE
 
-* [We Perform](https://github.com/MananKGarg/NCC-Magazine/blob/master/We/We%20Perform.md)
-  * Text Finalised, photos to be selected
 * [We Play](https://github.com/MananKGarg/NCC-Magazine/blob/master/We/We%20Play.md)
 * [We March](https://github.com/MananKGarg/NCC-Magazine/blob/master/We/We%20March.md)
 * [We Tour](https://github.com/MananKGarg/NCC-Magazine/blob/master/We/We%20Tour.md)
@@ -39,19 +37,15 @@
 
 ### Council
 
-* 
+ 
 
 
 ## Finished Stuff
 
-
-### Timeline
-
-
-
-
 ### We
 
 * [We Fire](https://drive.google.com/drive/u/2/folders/1oHGloFiCshlXJ71-0s_prSJMnw3y46sT)
+* [We Perform](https://drive.google.com/drive/u/2/folders/1Er2wgUL5hYg-rqUlSaiNrlz4wnsMcZEQ)
 
+### Timeline
 
