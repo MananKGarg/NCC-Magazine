@@ -1,5 +1,5 @@
 # <p align = 'center' > We Celebrate
-## <p align = 'center > "The important thing in life is not to triumph , but to compete." - Pierre De Coubertin
+## <p align = 'center' > "The important thing in life is not to triumph , but to compete." - Pierre De Coubertin
 
 Competition is the real world and those who have talent or work the hardest , become successful . Competitions in IIT are inevitable 
 and competition for IITians is inseparable !!! Here too , at NCC IIT Bombay competitions are integral part . Various GCs are
