@@ -1,7 +1,7 @@
-# We Salute 
+# <p align = 'center' > We Salute </p>
 
-" A thoughtful mind when it sees a nation's flag , sees not the flag , but the nation itself . "
- - Henry Ward Beecher
+ " A thoughtful mind when it sees a nation's flag , sees not the flag, but the nation itself. "- Henry Ward Beecher
+
 Providing with the rarest of rare opportunities to its cadets is a tradition in NCC IITB . Saluting the nation's flag is one of them.
 NCC IITB bestows this providential opportunity to its cadets twice in a year : first on the occasion of Independence Day and then on 
 the Republic Day. Apart from saluting the flag , the cadets get a chance to give much respected and coveted Guard of Honour to the
