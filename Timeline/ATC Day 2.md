@@ -1,4 +1,4 @@
-# <p align = 'center' > ATC Day 2 </p>
+#  ATC Day 2 
 
      After the pre-eminent start of the camp on the first day, the second day began with a power packed and motivational lecture
 by the commanding officer colonel A.S. Mehta. He introduced the camp to the cadets and informed them about the activities which
