@@ -10,5 +10,5 @@ their role in maintaining harmony in the nation. In the sports corner, Badminton
 the three colleges. A really healthy competition was observed among the participants and supporters, which included some really exciting
 and edgy matches. IIT Bombay stole the show of the day in all the matches and emerged as the clear winner among all the formats of the
 game. Second and third positions were respectively held by DY Patil and Doshi Vakil College. The day ended officially with Roll Call
-as per the protocol. After that, seniors had a light interacted with the cadets to take their feedback till now, lighten up their mood
+as per the protocol. After that, seniors had a light interaction with the cadets to take their feedback till now, lighten up their mood
 with some fun activities and motivate them for the further events and activities to take part in enthusiastically. 
