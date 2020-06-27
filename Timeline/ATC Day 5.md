@@ -1,4 +1,4 @@
-#ATC DAY 5 :
+# ATC DAY 5 :
 
 The fifth day began with Yoga in the early morning session . The germane session was organized for the rest half of the cadets to emphasize the importance of Yoga in our
 bustling life , in which they were taught to concentrate better and to avail Yoga in a spiritual way . The Yoga session was followed by an Intercollege Debate Competition 
