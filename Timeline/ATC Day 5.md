@@ -1,6 +1,6 @@
 # ATC DAY 5 :
 
-The fifth day began with Yoga in the early morning session . The germane session was organized for the rest half of the cadets to emphasize the importance of Yoga in our
+The fifth day began with Yoga in the early morning session . The germane session was organized for the half of the cadets to emphasize the importance of Yoga in our
 bustling life , in which they were taught to concentrate better and to avail Yoga in a spiritual way . The Yoga session was followed by an Intercollege Debate Competition 
 on the topic of ‘Militancy and Terrorism can be stopped by observing Human Rights’ in the morning session . The competition was an exquisite one as so many great ideas and
 different spiffing viewpoints were put forward by the cadets of different colleges . The competition was followed by an applaudable lecture by the esteemed IRS officer Reshma
