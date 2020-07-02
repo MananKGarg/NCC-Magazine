@@ -26,7 +26,6 @@
 ### WE
 
 * [We March](https://github.com/MananKGarg/NCC-Magazine/blob/master/We/We%20March.md)
-* [We Tour](https://github.com/MananKGarg/NCC-Magazine/blob/master/We/We%20Tour.md)
 * [We Contribute](https://github.com/MananKGarg/NCC-Magazine/blob/master/We/We%20Contribute.md)
 * [We Salute](https://github.com/MananKGarg/NCC-Magazine/blob/master/We/We%20Salute.md)
 
@@ -47,6 +46,7 @@
   * Quote remaining
 * [We Perform](https://drive.google.com/drive/u/2/folders/1Er2wgUL5hYg-rqUlSaiNrlz4wnsMcZEQ)
 * [We Play](https://drive.google.com/drive/u/2/folders/1I3MWM3MKPuayFtWL8iL-enGuAQZclEW5)
+* [We Tour](https://drive.google.com/drive/u/2/folders/1KfzdDF_NuQ2akKllD3l34XRSLEreIS8R)
 
 ### Timeline
 
