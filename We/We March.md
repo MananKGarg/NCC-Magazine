@@ -16,7 +16,7 @@ Foot Drill is an integral part of NCC training. It inculcates a sense of discipl
 
 # Manan
 
-**One who makes drill bloodless combat and combat bloody drill…<br>
+**One who makes drilla a bloodless combat and combat a bloody drill…<br>
 One who disciplines the offense and not the offenders…<br>
 One whose heart is with the Legion and whose loyalty is to the Republic…<br>
 One who seeks the companionship of the long march and not the privilege of position…<br>
@@ -25,4 +25,5 @@ One who knows the self and, therefore, is true to all…<br>
 One who seeks to serve and not to be served…**<br>
 
 **This is the one who leads best of all.”<br>
+
 – LTC Jeffrey Spara**
