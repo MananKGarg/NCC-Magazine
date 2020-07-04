@@ -1,6 +1,6 @@
 # Council Training Camp
 
-The earliest memory of NCC that every freshman of 2019 batch has is probably of the NCC orientation session held in the very beginning of August. I could have started this section from right there but I think it wouldn't be 
+The earliest memory of NCC that every freshman of 2019 batch has is probably of the NCC orientation session held in the very beginning of August. I could have started this section from right there but I think it wouldn't be so much fun to start with stuff that they already know. So, I would start with the time of last June when they were probably just chilling out in their homes after the result of JEE Advanced was declared
 
 
 
