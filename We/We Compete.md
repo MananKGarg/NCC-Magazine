@@ -1,4 +1,4 @@
-# <p align = 'center' > We Celebrate
+# <p align = 'center' > We Compete
 ## <p align = 'center' > "The important thing in life is not to triumph , but to compete." - Pierre De Coubertin
 
 Competition is the real world and those who have talent or work the hardest , become successful . Competitions in IIT are inevitable 
