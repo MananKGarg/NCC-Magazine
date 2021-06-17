@@ -41,11 +41,16 @@
 ### We
 
 * [We Fire](https://drive.google.com/drive/u/2/folders/1oHGloFiCshlXJ71-0s_prSJMnw3y46sT)
-  * Quote remaining
 * [We Perform](https://drive.google.com/drive/u/2/folders/1Er2wgUL5hYg-rqUlSaiNrlz4wnsMcZEQ)
 * [We Play](https://drive.google.com/drive/u/2/folders/1I3MWM3MKPuayFtWL8iL-enGuAQZclEW5)
 * [We Tour](https://drive.google.com/drive/u/2/folders/1KfzdDF_NuQ2akKllD3l34XRSLEreIS8R)
 * [We March](https://drive.google.com/drive/u/2/folders/1BVBG2QAfWmtstDPyQSFkz7wZw_hu2oNZ)
+* [We Contribute]
+* [We Salute]
+* [We Celebrate]
+* [We Compete]
+* [We Create]
+* 
 
 ### Timeline
 
